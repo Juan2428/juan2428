@@ -7,7 +7,7 @@
   
 
 ## Informacio Personal
-aprendiz de ADSO de la ficha 2900177 jr estudio su bachiller en la I.E promocion social de palermo-huila Dominio de varias plataformas en especial HTML, JavaScript, CSS
+aprendiz de ADSO de la ficha 2900177  estudio su bachiller en la I.E promocion social de palermo-huila Dominio de varias plataformas en especial HTML, JavaScript, CSS
 en mis tiempos libres me gusta analisar mi vida y pensar como superarme me gusta el pensamiento critico y mi creatividad es masa
 
 ## Destrezas
